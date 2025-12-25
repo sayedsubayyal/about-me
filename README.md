@@ -1,4 +1,4 @@
-# Syed Muhammad Subayyal 
+# Sayed Muhammad Subayyal 
 
 ## Overview
 I am a cybersecurity enthusiast and student at Islamia College Peshawar.  
